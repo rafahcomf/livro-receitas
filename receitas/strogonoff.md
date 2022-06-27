@@ -43,3 +43,5 @@
 3. Frite por 3 minutos e jogue na panela o creme de leite, catchup, extrato de tomate e mostarda.
 4. Deixe ferver um pouco, sempre misturando.
 5. Sirva com arroz branco e batata palha.
+
+ 
